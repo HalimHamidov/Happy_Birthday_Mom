@@ -2,4 +2,4 @@
 С днем рождения Мама
 
 
-https://zafarhamidov.github.io/Happy_Birthday_Darling/
+https://zafarhamidov.github.io/Happy_Birthday_Mom/
